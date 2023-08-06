@@ -1,0 +1,2 @@
+# FuckWebWiiU
+WTF WEBSITE !!!!!!!
